@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @moneyman1111
+- 👋 Hi, I’m Abdukerim
 - 👀 I’m interested in programming, investmaent, AI, development, crypto
 - 🌱 I’m currently learning AI, crypto, programming
 - 💞️ I’m looking to collaborate with people who want work such projects as AI, software development, crypto, Investment
 - 📫 How to reach me abdukerimrichest@gmail.com
-- 😄 Pronouns: NeoTrix
+- 😄 My Nickname: NeoTrix
 - ⚡ Fun fact: I'm serious guy
 
 <!---
